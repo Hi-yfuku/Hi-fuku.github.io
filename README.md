@@ -1,0 +1,1 @@
+# Hi-fuku.github.io
